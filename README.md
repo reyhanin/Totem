@@ -16,3 +16,8 @@
 
 ![Img](IMG_3580.jpeg) 
 ![Img](IMG_3586.jpeg)
+[Приготовление рыбы](https://drive.google.com/file/d/1gqtwiww8nG7-O1mZi5yQZ7Bvd2YjVeQP/view?usp=drivesdk)
+
+
+
+
